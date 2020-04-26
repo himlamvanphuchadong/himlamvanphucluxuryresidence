@@ -1,4 +1,3 @@
-# himlamvanphucluxuryresidence
 Shophouse Him Lam Vạn Phúc Hà Đông
 <h1>HẠ TẦNG ĐỒNG BỘ</h1>
 <p>Nằm cạnh ngã tư Vạn Phúc, mặt đường Lê Văn Lương – Tố Hữu, thuộc khu vực phía Tây Hà Nội, <a href="https://storehomes.vn/him-lam-van-phuc-ha-dong/">Him Lam Vạn Phúc Luxury Residence</a> sở hữu vị trí tinh hoa hiếm có cùng cơ hội đầu tư, kinh doanh vô cùng tiềm năng. Nơi đây đang là điểm nóng phát triển của Thủ đô với hàng loạt công trình, dự án lớn.</p>
