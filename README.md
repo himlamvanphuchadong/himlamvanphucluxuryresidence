@@ -64,5 +64,4 @@ Shophouse Him Lam Vạn Phúc Hà Đông
 <p><img width="750" height="483" src="https://storehomes.vn/wp-content/uploads/2020/04/phoi-canh-him-lam-van-phuc-15.jpg" alt="Phối cảnh dự án Him Lam Vạn Phúc Luxury Residence" srcset="https://storehomes.vn/wp-content/uploads/2020/04/phoi-canh-him-lam-van-phuc-15.jpg 870w, https://storehomes.vn/wp-content/uploads/2020/04/phoi-canh-him-lam-van-phuc-15-300x193.jpg 300w, https://storehomes.vn/wp-content/uploads/2020/04/phoi-canh-him-lam-van-phuc-15-768x494.jpg 768w" sizes="(max-width: 750px) 100vw, 750px" /></p>
 <p><strong>Mọi thông tin chi tiết về dự án Shophouse Him Lam Vạn Phúc Hà Đông:</strong></p>
 <ul><li><strong>Hotline: 0948.300.301 (Phòng Kinh doanh CĐT)</strong></li>
-<li><strong>Website:&nbsp;<a href="https://storehomes.vn/him-lam-van-phuc-ha-dong/</a></strong></li>
-<li><strong>Địa chỉ: Tố Hữu, Vạn Phúc, Hà Đông, Hà Nội.</strong></li></ul>
+
